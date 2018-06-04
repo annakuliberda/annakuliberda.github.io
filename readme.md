@@ -1,8 +1,8 @@
-﻿# my website
+﻿# Anna Kuliberda Coaching: Communication and Innovation
 
-This information is new
+## Helping you in getting stuff done without imposing anything on you or judging.
 
-## this is a subtitle	
+I listen and I help build structures when it's needed or when it's needed, I help in forgetting about structures setting the mind free in order to see what is there.
 
 ## IMPRESSUM
 
