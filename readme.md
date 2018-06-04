@@ -11,10 +11,10 @@ Obere Turnstr. 1<br>
 90429 Nürnberg<br> 
 </p><p> <strong>Vertreten durch: </strong><br>
 Anna Kuliberda<br>
-</p><p><strong>Kontakt:</strong> <br>
+</p><p><strong>Kontakt:</strong> 
 Telefon: 01522 2563182<br>
 <br>
-E-Mail: <a href='mailto:anna.kuliberda@gmail.com'>anna.kuliberda@gmail.com</a></br></p>
+E-Mail: <a href='mailto:anna.kuliberda@gmail.com'>anna.kuliberda@gmail.com</a></p>
 <p><strong>Verantwortlich für den Inhalt nach § 55 Abs. 2 RStV:</strong><br>
 Anna Kuliberd <br> 
 Obere Turnstr. 1<br> 
