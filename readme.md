@@ -4,6 +4,19 @@
 
 I listen and I help build structures when it's needed or when it's needed, I help in forgetting about structures setting the mind free in order to see what is there.
 
+## What I can help you with
+
+Your goals can be connected to your professional life, competencies’ development or life decisions. 
+With coaching support you can work on anything that lays within your powers. 
+
+Coaching can have many goals including:
+* Career development
+* Making life decisions (big or small)
+* Learning new competences like for example soft skills
+* Prioritising and defining what is really important to you and making concrete plans how to get there
+If you’re not sure if this is something for you, you can always contact me and check.
+
+
 ## IMPRESSUM
 
 <div class='impressum'><h1>Impressum</h1><p>Angaben gemäß § 5 TMG</p><p>Anna Kuliberda <br> 
