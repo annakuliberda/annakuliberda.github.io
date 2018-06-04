@@ -1,10 +1,4 @@
-﻿---
-
-title: Anna Kuliberda Coaching 
-
----
-
-# Anna Kuliberda Coaching: Communication and Innovation
+﻿# Anna Kuliberda Coaching: Communication and Innovation
 
 ## Helping you in getting stuff done without imposing anything on you or judging.
 
